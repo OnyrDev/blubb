@@ -1,4 +1,4 @@
 # blubb
-Аналог discord
+Убийца discord
 Ilya gay
 плюсую
